@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Image of Meiringen](https://lucyfuggle.com/wp-content/uploads/2017/03/img-7.jpg)
